@@ -1,3 +1,3 @@
-Tobey Maguire
-Hugh Keays-Byrne
-Bruce Lee
+Look at me!
+Cigarette Daydreams
+Back In Black
